@@ -1,6 +1,6 @@
 # Mr. Nightmare_HDH
 
-![Profile Banner](link-to-banner-image)
+![Profile Banner](https://raw.githubusercontent.com/Nightmare-De9/Nightmare-De9/refs/heads/main/banner.png)
 
 ## About Me
 
