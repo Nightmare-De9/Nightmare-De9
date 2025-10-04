@@ -24,7 +24,7 @@
 ## Contact
 
 📫 How to reach me:  
-Sorry, I like to keep a low profile. No, you can't! 😉
+Mail me <a href="mailto:nightmarehdh@proton.me">
 
 ---
 
