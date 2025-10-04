@@ -24,7 +24,7 @@
 ## Contact
 
 📫 How to reach me:  
-Mail me <a href="mailto:nightmarehdh@proton.me">
+Mail me at nightmarehdh@proton.me
 
 ---
 
